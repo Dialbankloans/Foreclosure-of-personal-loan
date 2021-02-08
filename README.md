@@ -10,11 +10,11 @@
 <p align="justify">Now as we have also known the gist regarding what is the personal loan and what kinds of all categories this also belongs to, let us see what a personal loan foreclosure has to do with this and how all the borrowers whoever decided to go with this option of the personal loan are more benefited by this personal loan foreclosure. Firstly, all the people have to be aware of the fact that, unlike other loans, people can not expect the personal loan repayments schemes to be wide in number as this is made very certainly clear on offering the total repayment schemes in terms of the EMI payments methods as a very major one. So a foreclosure is a very simple as well as a simple process that deals with the total payments being done all together at a very single time as well as eventually leading to now where the unpaid amount is being seen. 
 
 
-Conclusion
+<b><h3>Conclusion<h3></b>
 
 <p align="justify">By opting for the best personal loan foreclosure, all the individual or a borrower usually pays up the total amount that he or she eventually had to pay every month as the scheme of EMI payments. This is up to a borrower to choose a foreclosure month, in which he or she wishes to pay the amount at one single time. Always make things very easier with all the technology foreclosure calculators are always made on the internet. Eventually one just has to enter very certain details such as the opted loan amount, tenor, rate of interest, and some other types of things. This loan always benefits whenever you take this is a very easy process also.
 
-<b><h4>Author Bio</h4></b>
+<b><h3>Author Bio</h3></b>
 
 <p align="justify">Gaurav S. Khurana is the Founder and CEO of Dialabank and has had a great career in the Banking and Financial Services Sector. He has an experience of 18 years in the sector and has worked at Senior Roles including National Sales Head at ING Investment Management India and as the Vice President Citibank. A post-graduate from IMT, Ghaziabad. Gaurav started his career as a Named Account Manager in Xerox.
 
